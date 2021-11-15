@@ -1,1 +1,1 @@
-когда твой лучший друг говорит люблю тебя = пошел на хуй
+Games don't make you violent, lag does.
